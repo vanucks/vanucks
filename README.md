@@ -1,6 +1,6 @@
 &nbsp;<div align="center">
 <img width="300" height="300" alt="17614012264308391649848983025334" src="https://64.media.tumblr.com/5b3ce50c55a38de7608d86a2aa43e8c9/54c3c423b2abb66b-88/s2048x3072/9b3008072f7f6dc0db45e9272e9723dc8115be6c.pnj"> 
-<br/> hi im *BROCK* or tabi and echo
+<br/> hi im *BROCK* or tabi or echo
 
 &nbsp;<div align="center">
 
