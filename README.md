@@ -25,8 +25,8 @@ i hate the vancouver canucks
 &nbsp;<div align="center">
 
 <img width="300" height="300" alt="17614012264308391649848983025334" src="https://i.pinimg.com/736x/6d/15/1d/6d151ddcad57152171b80dbcb0eb937a.jpg"> 
- <br/> my very functional family and all of these guys are totally still on the canucks
-
+ <br/> my very functional family...
+ 
 &nbsp;<div align="center">
 
 <img width="150" height="150" alt="17614012264308391649848983025334" src="https://i.pinimg.com/736x/cd/b4/c5/cdb4c5b8d895b0a5aa2d65de5c4b9c0f.jpg">
